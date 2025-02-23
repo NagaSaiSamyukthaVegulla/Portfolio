@@ -1,1 +1,0 @@
-Naga Sai Samyuktha Vegulla Portfolio.
